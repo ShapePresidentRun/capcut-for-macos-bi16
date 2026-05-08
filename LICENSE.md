@@ -1,4 +1,4 @@
-
+new CapCut for macOS Addon | text-animation + AI-enhanced-editing is the best CapCut for macOS addon, featuring text-animation and AI-enhanced-editing. Powerful, efficient, and
 
 
 
